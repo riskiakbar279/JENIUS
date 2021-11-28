@@ -1,8 +1,6 @@
 Mengenal Frekuensi AJAIB ,dan menakjubkan di Musik -> 9 Frekuensi Solfeggio 
 menyehatkan Tubuh ,menyeimbangkan energy dll dgn 9 Frekuensi Solfeggio 
 .
-Bagi yg pengen dengan bunyi frekuensinya bisa klik Link Youtube di bawah ini :
-https://youtu.be/NJ2gI4-oqYo
 
 Apa itu Frekuensi Solfeggio ?
 .
